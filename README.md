@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Smeshiqq
-- 👀 I’m interested programming because it is interesting and exciting, especially I like languages ​​such as:
+- 👀 I’m interested programming because it is interesting and exciting, especially I like languages ​​such as: Python,PHP,HTML,Css,Js and Data Since languages
 - 🌱 I’m currently learning in high school
 - 💞️ I’m looking to collaborate on with fairly large companies in the future and be useful to them.
 - 📫 How to reach me Telegram Chanell(@smeshiqq), My Telegram Account(@smeshiq_q)
