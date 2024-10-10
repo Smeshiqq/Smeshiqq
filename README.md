@@ -2,7 +2,7 @@
 - 👀 I’m interested programming because it is interesting and exciting, especially I like languages ​​such as:
 - 🌱 I’m currently learning in high school
 - 💞️ I’m looking to collaborate on with fairly large companies in the future and be useful to them.
-- 📫 How to reach me Telegram Chanell(Smeshiqq), My Telegram Account(@smeshiq_q)
+- 📫 How to reach me Telegram Chanell(@smeshiqq), My Telegram Account(@smeshiq_q)
 - 😄 Pronouns: Smeshiqq,Smesh,Danya
 - ⚡ Fun fact: I sportsmen and coder xD
 
